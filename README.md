@@ -1,2 +1,2 @@
 # fiacasestudy
-Team member: Suzanna, Jia En, Adrian, Virence
+Team member: Xin Yuan, Jia En, Adrian, Virence
